@@ -1,4 +1,10 @@
-- 🌱 I’m currently learning nothing
-- 📫 How to reach me: https://j0.lol
-- 😄 Pronouns: she/her
-- 🌈 I host resources for trans voice training at https://transvoice.party
+dumb programmer that cant program
+
+she her or they them, dumb
+
+```
+░░░░░░███████ ]▄▄▄▄▄▄▄▄        Bob is building an army.
+▂▄▅█████████▅▄▃▂          ☻/   This tank & Bob are against Google+
+Il███████████████████].  /▌    Copy and Paste this all over 
+  ◥⊙▲⊙▲⊙▲⊙▲⊙▲⊙▲⊙◤..      / \   Youtube if you are with us
+  ```
