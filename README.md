@@ -5,7 +5,7 @@ dumb programmer that cant program
 she her or they them, dumb
 
 - Does dumb css/js stuff
-- Trying to learn an actual programming language
+- Learning rust! See my rs-youtube project :)
 
 ```
 ░░░░░░███████ ]▄▄▄▄▄▄▄▄        Bob is building an army.
